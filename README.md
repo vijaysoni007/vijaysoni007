@@ -1,5 +1,4 @@
-![aa](https://github.com/vijaysoni007/vijaysoni007/assets/102143322/5c4549d4-8fc9-449c-8b40-0970948441ab)
-
+![Image](https://github.com/vijaysoni007/vijaysoni007/assets/102143322/acda66ef-ba04-499a-bf66-053ea85f5c6e)
 # Vijay Soni
 
 💻Website Developer, 🕶Freelancer, ✏Blogger, 📐Student, 📙Reader and many more...
