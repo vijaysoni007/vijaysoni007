@@ -1,5 +1,5 @@
 ![Image](https://github.com/vijaysoni007/vijaysoni007/assets/102143322/7716d2d1-3e2b-4a4f-8ace-4fd361d5735b)
-# Vijay Soni
+# About me
 
 💻Website Developer, 🕶Freelancer, ✏Blogger, 📐Student, 📙Reader and many more...
 
