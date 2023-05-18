@@ -1,4 +1,4 @@
-![image](https://github.com/vijaysoni007/vijaysoni007/blob/main/aa.jpg?raw=true)
+![aa](https://github.com/vijaysoni007/vijaysoni007/assets/102143322/5c4549d4-8fc9-449c-8b40-0970948441ab)
 
 # Vijay Soni
 
